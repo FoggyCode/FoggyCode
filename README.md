@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @FoggyCode
+- 👀 I’m interested in Code 
+- 🌱 I’m currently learning Nothing
+- 💞️ I’m looking to collaborate on STORMWORKS | Unity
+- 📫 How to reach me NO
